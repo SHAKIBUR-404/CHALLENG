@@ -1,3 +1,3 @@
-method and Bypass Challenge
+method Challenge
 
 #Good-Luck-Brother
